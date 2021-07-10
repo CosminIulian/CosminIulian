@@ -1,3 +1,3 @@
-### Junior iOS Developer :computer: :iphone: :watch:
+### iOS Developer :computer: :iphone: :watch:
 
 
